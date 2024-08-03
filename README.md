@@ -1,1 +1,1 @@
-# Online-Shop-for-Electronic-Devices.
+# Online-Shop-for-Electronic-Devices
